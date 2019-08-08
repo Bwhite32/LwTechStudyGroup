@@ -1,2 +1,2 @@
 # LwTechStudyGroup
-For all of us " BIG TIME SOFTWARE ENGINEERS
+For all of us " BIG TIME SOFTWARE ENGINEERS"!
